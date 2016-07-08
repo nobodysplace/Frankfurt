@@ -9,3 +9,6 @@ Damit ihr euch eine Übersicht machen könnt, werde ich hier meine geplanten Anw
 | CH | CH  | xx | xx | xx | xx | xx | xx | xx | xx | DE | DE | xx | xx | xx | xx |
 
 Ich habe gedacht, ich werde ca 3 WE in Frankfurt bleiben. bitte meldet euch genug früh, wenn ihr mich besuchen wollt.
+CH = Schweiz
+DE = Frankfurt
+xx = hier könnt Ihr vorbei kommen
